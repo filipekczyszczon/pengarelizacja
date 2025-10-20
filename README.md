@@ -1,0 +1,1 @@
+koszty ryzyka finansowego
